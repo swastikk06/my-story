@@ -1,0 +1,1 @@
+Jason then goes to the Genarel's office. There the Genarel welcomed him warmly and told him to sit.
